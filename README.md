@@ -6,4 +6,4 @@
 I'm a university student
 
 ## Feedback
-แจ้ง Feedback, ติดต่อม่ที่  dubfijokkh@gmail.com
+แจ้ง Feedback, ติดต่อได้ที่  dubfijokkh@gmail.com
